@@ -9,4 +9,5 @@ receive FREE digital basic income with real monetary.
 
 ## Faucent
 - [Ninja Faucent](http://bit.ly/NinjaFaucent) - Earn unlimited cryptocurrencies by completing tasks, watch videos, play games and more.
+- [Cointiply](http://bit.ly/Cointiply2) - Earn FREE Bitcoin by playing, waching videos & complete tasks, over 1.4m members
 - [FreeBitcon](http://bit.ly/FreeBitcoinN) - Maby ways to earn, win or lose BTC. 
